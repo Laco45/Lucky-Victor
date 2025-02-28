@@ -2,10 +2,8 @@
 - l'm interested in learning computer programming
 - I'm currently learning community health nursing
 - can reach me gchukilv23@gmail.com
-- 
-- 👀 I’m I’m Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Lucky Victor Ng'ang'a
-=====================================================================================================================================Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Lucky Victor Ng'ang'a
-=============================================================================================================================================
+
+
 
 Am a student whose currently doing programming and after that I will further my studies in programming inorder to be become one of the bestHi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Lucky Victor Ng'ang'a
 ====================================
